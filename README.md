@@ -4,4 +4,4 @@ This can help the retailers:
 1) Reduce Marketing Budget on the customers who arent liekly to come back
 2) Develop differentiated strategies for different customers.
 3) Different promotional strategies for different products during different times of the day and different months of the year.
-4)Optimise their assortment basis the revenue generated from them thus increasing profits
+4) Optimise their assortment basis the revenue generated from them thus increasing profits
